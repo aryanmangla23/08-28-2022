@@ -21,3 +21,5 @@ Never talked about it and won't talk about it:
 I sometimes have the urge to be front up and just tell you to stfu. Something very ironic I saw. Hmm. LOL IM SO CONFUSED :D:D:D:D guysh guyhsa sakfasa aa;ms;a;a;a;;ma;;m;am;aaa. kay time to cope scrww this. Why can't people stop acting weird m8. I genuinly can't tell what people hint or are they trying to act quirky. Pissed offfffffffffffffffffffffffffffffffffffffffffffffffff. 
 
 I REMEMBER that day so clear. LOL LoOoLlllLolOollOloLoloLlolooolllllllll. Should I talk about my feelings or wat hmm.
+
+K STFU IDGAF. NOT WORTH MY TIME :D. 
