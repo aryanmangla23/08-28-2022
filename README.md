@@ -2,7 +2,7 @@
 
 Previous [Diary](https://aryanmangla23.github.io/08-27-2022/)
 
-Next [Diary](https://aryanmangla23.github.io/08-30-2022/)
+Next [Diary](https://aryanmangla23.github.io/08-31-2022/)
 
 Woke up at 7. Made breakfast tea. Worked on Japanese for an hour. Showered. 
 
